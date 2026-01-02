@@ -42,4 +42,4 @@ This Privacy Policy may be updated from time to time. Any changes will be posted
 Contact Us
 If you have any questions about this Privacy Policy, you may contact us at:
 
-Email: support@yourcompany.co
+Email: mediavision.mvinfotech@gmail.com
